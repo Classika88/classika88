@@ -1,4 +1,4 @@
-# 🙋 Welcome ![Visitors](https://visitor-badge.glitch.me/badge?page_id=classika88.visitor-badge)(https://visitor-badge.glitch.me/badge?page_id=classika88)  ![visitors](https://visitor-badge.glitch.me/badge?page_id=classika88&left_color=green&right_color=red)
+# 🙋 Welcome ![Visitors](https://visitor-badge.glitch.me/badge?page_id=classika88.visitor-badge)(https://visitor-badge.glitch.me/badge?page_id=classika88)  ![visitors](https://visitor-badge.glitch.me/badge?classika88=classika88&left_color=green&right_color=red)
                 
 
 ## 😄 About me
